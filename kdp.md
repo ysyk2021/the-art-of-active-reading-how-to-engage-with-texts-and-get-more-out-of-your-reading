@@ -2,8 +2,6 @@
 
 # Introduction
 
-Introduction
-
 Reading is a fundamental skill that we use every day, whether it's for work, school, or personal enjoyment. However, many of us struggle to get the most out of our reading experience. We may find ourselves getting distracted or losing interest in the material, or simply not retaining the information as well as we'd like.
 
 "The Art of Active Reading" is a book that provides practical strategies for becoming a more effective and engaged reader. This book explores the benefits of active reading and offers techniques for improving your reading comprehension, critical thinking skills, and overall reading experience.
