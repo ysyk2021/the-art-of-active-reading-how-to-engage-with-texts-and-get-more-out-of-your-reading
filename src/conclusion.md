@@ -1,8 +1,5 @@
 # Conclusion
 
-Chapter: Conclusion
-===================
-
 Subchapter 1: The Ongoing Journey of the Active Reader
 ------------------------------------------------------
 
