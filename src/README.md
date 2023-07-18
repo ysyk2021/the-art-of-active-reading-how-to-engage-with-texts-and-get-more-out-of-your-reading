@@ -15,5 +15,4 @@ In this book, you'll learn how to:
 
 Whether you're a student, a professional, or simply someone who loves to read, "The Art of Active Reading" offers valuable insights and practical tools for improving your reading experience. By adopting an active reading mindset, you can unlock a world of knowledge and become a more informed and engaged individual.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
