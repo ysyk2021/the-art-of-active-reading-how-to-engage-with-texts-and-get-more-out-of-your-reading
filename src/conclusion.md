@@ -1,6 +1,6 @@
 # Conclusion
 
-Subchapter 1: The Ongoing Journey of the Active Reader
+The Ongoing Journey of the Active Reader
 ------------------------------------------------------
 
 Throughout this book, we have explored various strategies and techniques that can help you become an active reader. We discussed the importance of engaging with texts and how it can enhance your reading experience. As you conclude your reading journey, it is essential to understand that being an active reader is not a destination but an ongoing process.
@@ -11,7 +11,7 @@ Continuously challenging yourself as a reader is crucial. Seek out diverse genre
 
 While the principles of active reading remain constant, it is important to adapt your approach based on the type of text you are engaging with. Whether it is fiction, non-fiction, academic literature, or poetry, understanding the unique characteristics and purpose of each genre will enrich your reading experience.
 
-Subchapter 2: Final Thoughts and Recommendations for Readers
+Final Thoughts and Recommendations for Readers
 ------------------------------------------------------------
 
 As we reach the end of this book, I would like to leave you with some final thoughts and recommendations to help you on your continuous journey of active reading:
