@@ -1,5 +1,3 @@
-Chapter 3: Pre-Reading Strategies
-=================================
 
 Pre-reading strategies are essential for active reading. In this chapter, we will explore techniques for preparing to read, setting goals for reading, and previewing texts.
 

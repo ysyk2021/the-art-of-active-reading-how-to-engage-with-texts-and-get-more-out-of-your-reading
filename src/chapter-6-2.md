@@ -1,5 +1,3 @@
-Asking Questions and Making Connections
-==================================================
 
 In this chapter, we explore the importance of asking questions and making connections while actively reading. By actively engaging with texts, readers can enhance their understanding, deepen their insights, and derive greater value from their reading experiences. By employing effective strategies for asking questions and making connections, readers can unlock new perspectives and develop a more profound connection to the material.
 

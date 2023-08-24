@@ -1,5 +1,3 @@
-Chapter 9: Applying Active Reading to Professional Growth
-=========================================================
 
 Active reading is not only beneficial for personal growth, but also for professional development. By using active reading techniques, we can gain new insights and skills that can help us succeed in our careers.
 

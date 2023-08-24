@@ -1,5 +1,3 @@
-Chapter 8: Applying Active Reading to Personal Growth
-=====================================================
 
 Active reading is not only beneficial for professional growth, but also for personal development. By using active reading techniques, we can gain new insights and perspectives that can help us grow and improve as individuals.
 

@@ -1,5 +1,3 @@
-Techniques for Developing a Reading Mindset
-======================================================
 
 In this chapter, we explore techniques for developing a reading mindset that enhances engagement, focus, and comprehension. Cultivating a positive and receptive mindset is essential for active reading, as it allows readers to approach texts with curiosity, openness, and a willingness to deeply understand the material. By employing the following techniques, readers can develop a reading mindset that maximizes their reading experience and helps them get more out of their reading.
 

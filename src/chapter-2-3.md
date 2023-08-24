@@ -1,5 +1,3 @@
-The Benefits of Effective Active Reading
-=================================================
 
 In this chapter, we will explore the numerous benefits that effective active reading can bring to your reading experience. By engaging with texts in a purposeful and active manner, you can unlock a range of advantages that go beyond simple comprehension.
 

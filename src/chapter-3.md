@@ -1,5 +1,3 @@
-Chapter 2: Developing a Reading Mindset
-=======================================
 
 Reading is not just about decoding words on a page; it's about engaging with the text and actively making meaning from what we read. To do this effectively, we need to develop a reading mindset that allows us to approach texts with curiosity and purpose.
 

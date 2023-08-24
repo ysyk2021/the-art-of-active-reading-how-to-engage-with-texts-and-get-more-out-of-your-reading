@@ -1,5 +1,3 @@
-The Ongoing Journey of the Active Reader
-====================================================
 
 Effective active reading is not a destination, but an ongoing journey. As we continue to read widely and diversely, engage with texts in new ways, and challenge ourselves with new ideas and perspectives, we can become more skilled and confident readers.
 

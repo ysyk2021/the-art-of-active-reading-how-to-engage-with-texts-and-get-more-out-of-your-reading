@@ -1,5 +1,3 @@
-Building a System for Organizing Annotations and Notes
-===============================================================
 
 In this chapter, we will explore the importance of organizing annotations and notes while engaging in active reading. Developing an effective system for organizing your thoughts and insights can greatly enhance your reading experience and make it easier to review and reference your annotations in the future.
 

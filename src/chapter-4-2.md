@@ -1,5 +1,3 @@
-Setting Goals for Reading
-==================================
 
 In this chapter, we will explore the importance of setting goals for your reading and how it can enhance your reading experience. By setting clear objectives before diving into a book, you can approach the material with intention, focus your attention, and extract the most value from your reading journey.
 

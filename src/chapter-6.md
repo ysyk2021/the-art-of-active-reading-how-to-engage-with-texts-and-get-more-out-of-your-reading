@@ -1,4 +1,3 @@
-# Chapter 5: Engaging with the Text
 
 Engaging with a text is the key to understanding it deeply. It’s not enough to just read the words, you need to actively analyze and interact with the material. In this chapter, we’ll explore techniques for engaging with the text.
 

@@ -1,5 +1,3 @@
-Introduction
-============
 
 Reading is a fundamental skill that we use every day, but many of us never learn how to read actively. Effective active reading involves more than just decoding words on a page; it requires us to engage with the text in a thoughtful and intentional way, using techniques like highlighting, note-taking, and questioning to promote deeper understanding.
 

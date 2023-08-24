@@ -1,5 +1,3 @@
-Final Thoughts and Recommendations for Readers
-==========================================================
 
 Effective active reading is a skill that can benefit us in countless ways, from improving our comprehension and critical thinking skills to expanding our vocabulary and knowledge. By engaging with texts in a thoughtful and intentional way, we can get more out of our reading experiences and become lifelong learners.
 
@@ -18,5 +16,4 @@ As you continue on your own journey as an active reader, here are some final tho
 * Seek out feedback and support: Joining a book club or finding a reading partner can provide valuable feedback and support as you work to develop your active reading skills.
 
 By incorporating these recommendations into your own reading habits, you can become a more effective and engaged reader. Happy reading!
-
 

@@ -1,5 +1,3 @@
-What is Active Reading?
-================================
 
 In this chapter, we will explore the concept of active reading and its significance in engaging with texts to extract more value from your reading experience.
 

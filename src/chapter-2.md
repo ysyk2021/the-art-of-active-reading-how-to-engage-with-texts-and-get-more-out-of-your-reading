@@ -1,5 +1,3 @@
-Chapter 1: Understanding Active Reading
-=======================================
 
 Reading is a fundamental skill that we learn at a young age, but many people never learn how to read actively. Active reading is a method of reading that goes beyond simply decoding words on a page; it involves engaging with the text and actively making meaning from what we read.
 

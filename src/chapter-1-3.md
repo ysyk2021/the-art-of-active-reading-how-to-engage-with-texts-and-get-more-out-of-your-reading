@@ -1,5 +1,3 @@
-The Role of the Art of Active Reading
-==============================================
 
 In the book "The Art of Active Reading: How to Engage with Texts and Get More out of Your Reading," we explore the transformative power of active reading techniques. Active reading goes beyond simply scanning the words on a page---it involves a deliberate and engaging approach that enhances comprehension, critical thinking, and overall reading experience. In this chapter, we delve into the role of the art of active reading and its significance in our journey towards becoming effective and engaged readers.
 

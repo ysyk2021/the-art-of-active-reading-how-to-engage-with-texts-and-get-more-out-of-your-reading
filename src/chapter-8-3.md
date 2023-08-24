@@ -1,5 +1,3 @@
-Encouraging a Culture of Effective Active Reading
-==========================================================
 
 In this chapter, we will explore strategies for fostering a culture of effective active reading. Creating an environment that values and encourages active reading can have a significant impact on individuals' reading habits and overall engagement with texts. By implementing the following practices, you can promote active reading as a valuable skill and empower readers to derive more meaning and value from their reading experiences.
 

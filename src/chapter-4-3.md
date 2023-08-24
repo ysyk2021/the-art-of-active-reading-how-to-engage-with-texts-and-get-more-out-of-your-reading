@@ -1,5 +1,3 @@
-Previewing Texts
-===========================
 
 In this chapter, we explore the important practice of previewing texts before diving into them. Previewing is a valuable technique that helps readers gain an overview of the content, understand the structure, and set expectations for their reading experience. By effectively previewing texts, readers can enhance their comprehension, improve reading efficiency, and engage more actively with the material.
 

@@ -1,5 +1,3 @@
-Chapter 7: Maximizing Efficiency in Active Reading
-==================================================
 
 Active reading is a valuable skill that can help you get more out of your reading. In this chapter, we will explore techniques for maximizing efficiency in active reading.
 

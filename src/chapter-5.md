@@ -1,5 +1,3 @@
-Chapter 4: Annotation and Note-Taking
-=====================================
 
 Annotation and note-taking are essential components of active reading. In this chapter, we will explore the importance of annotation and note-taking, techniques for effective annotation and note-taking, and strategies for organizing your annotations and notes.
 

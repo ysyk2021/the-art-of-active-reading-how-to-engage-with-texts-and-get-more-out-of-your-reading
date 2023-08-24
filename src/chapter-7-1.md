@@ -1,5 +1,3 @@
-Techniques for Reviewing and Reflecting on Reading
-===========================================================
 
 In this chapter, we will explore techniques for reviewing and reflecting on your reading. Effective review and reflection are key components of active reading, allowing you to consolidate your understanding, reinforce key concepts, and gain deeper insights from the texts you engage with.
 

@@ -1,5 +1,3 @@
-Types of Active Reading
-================================
 
 In this chapter, we will explore different types of active reading strategies that can be employed to enhance your engagement with texts. Each type offers a unique approach to actively interact with the material and extract more value from your reading experience.
 

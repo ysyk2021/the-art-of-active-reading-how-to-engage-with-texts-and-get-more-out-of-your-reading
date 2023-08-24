@@ -1,5 +1,3 @@
-Chapter 6: Post-Reading Strategies
-==================================
 
 Effective reading doesn't end when you finish the last page. In fact, post-reading strategies can be just as important for fully engaging with the material and retaining what you've learned. Here are some techniques for reviewing, synthesizing, and applying knowledge gained from reading.
 

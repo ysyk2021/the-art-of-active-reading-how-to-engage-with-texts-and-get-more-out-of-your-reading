@@ -1,5 +1,3 @@
-Building Skills Through Active Reading
-=================================================================================================
 
 Active reading is not just a valuable skill for academic success; it can also be a powerful tool for professional growth. By engaging with texts related to your industry, job, or career goals, you can build new skills and knowledge, expand your network, and stay up-to-date on the latest trends and developments in your field.
 

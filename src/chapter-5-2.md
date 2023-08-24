@@ -1,5 +1,3 @@
-Techniques for Annotating and Taking Notes
-===================================================
 
 In this chapter, we will explore techniques for annotating and taking notes while engaging in active reading. Effective annotation and note-taking strategies can enhance your reading experience, promote active engagement, and help you retain and recall important information from the texts you read.
 
