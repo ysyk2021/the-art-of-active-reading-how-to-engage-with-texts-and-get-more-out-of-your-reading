@@ -1,5 +1,4 @@
-Chapter: Building Skills Through Active Reading
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we delve into the importance of active reading and how it can help individuals develop essential skills for engaging with texts and extracting maximum value from their reading. We explore various techniques and strategies that enhance comprehension, critical thinking, and knowledge retention. By understanding the significance of active reading and implementing these techniques, readers will be able to build a strong foundation of skills that enrich their reading experiences and expand their intellectual growth.
 

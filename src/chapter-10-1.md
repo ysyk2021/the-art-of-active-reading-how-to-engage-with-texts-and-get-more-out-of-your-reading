@@ -1,5 +1,4 @@
-Chapter: Using Active Reading for Career Development
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore the powerful connection between active reading and career development. We delve into how active reading can be leveraged to gain a competitive edge, enhance professional skills, expand industry knowledge, and open doors to new opportunities. By understanding the application of active reading in career development and implementing strategies outlined in this chapter, readers will be able to harness the full potential of active reading to advance their careers and achieve long-term success.
 

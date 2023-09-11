@@ -1,5 +1,4 @@
-Chapter: Setting Goals for Professional Growth Through Reading
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore the importance of setting goals for professional growth through reading and how it can maximize the benefits derived from our reading endeavors. We delve into techniques for identifying relevant goals, selecting appropriate reading materials, and effectively integrating them into our professional development plans. By understanding the significance of goal setting and implementing strategies outlined in this chapter, readers will be able to harness the power of reading to drive their professional growth and achieve career success.
 
